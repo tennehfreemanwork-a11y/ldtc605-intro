@@ -1,1 +1,0 @@
-# ldtc605-intro
